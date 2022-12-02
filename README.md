@@ -1,2 +1,2 @@
 # DanielGrenehed
- GitHub profile
+Welcome to my GitHub page!

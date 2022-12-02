@@ -3,4 +3,4 @@ Welcome to my GitHub page!
 
 
 ## Links
-[LinkedIn](linkedin.com/in/daniel-grenehed)
+[LinkedIn](https://wwww.linkedin.com/in/daniel-grenehed)
